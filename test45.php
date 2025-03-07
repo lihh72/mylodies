@@ -1,0 +1,1 @@
+ngk ngk ngk saya setuju 

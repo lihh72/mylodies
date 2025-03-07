@@ -1,1 +1,0 @@
-yayaya saya setuju
